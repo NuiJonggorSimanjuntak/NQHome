@@ -4,3 +4,7 @@
 ![gambar](https://github.com/NuiJonggorSimanjuntak/NQHome/assets/91751377/36da32e6-8691-4d47-a7da-dd519f624eb1)
 ![gambar](https://github.com/NuiJonggorSimanjuntak/NQHome/assets/91751377/eb6bc42f-0e30-4ea4-bc6c-b7bb04ccec42)
 ![gambar](https://github.com/NuiJonggorSimanjuntak/NQHome/assets/91751377/114b026e-c7b9-45a5-ac75-c2b92aa20de3)
+![gambar](https://github.com/NuiJonggorSimanjuntak/NQHome/assets/91751377/b523ae33-14e9-4644-8724-71f78b5721fd)
+![gambar](https://github.com/NuiJonggorSimanjuntak/NQHome/assets/91751377/07aaf6cc-915d-4cc8-9f99-1056c45336de)
+![gambar](https://github.com/NuiJonggorSimanjuntak/NQHome/assets/91751377/724acc52-3ec4-49c4-97cf-fe36a0e137ad)
+![Uploading gambar.png…]()
